@@ -1,4 +1,4 @@
-# Precautions-for-Volcanic-Eruptions
+# Precautions for Volcanic Eruptions
 
 Volcanoes
 
